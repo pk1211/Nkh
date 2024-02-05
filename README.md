@@ -1,0 +1,2 @@
+# Nkh
+Life is easy
